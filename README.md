@@ -1,1 +1,0 @@
-guy do na
